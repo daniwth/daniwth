@@ -1,4 +1,5 @@
 # Welcome to My GitHub Profile! 👋
+![duck-dance](https://github.com/daniwth/daniwth/assets/93330784/985150d6-1dbc-464d-b969-1e7832e714f9)
 
 ## About Me
 
