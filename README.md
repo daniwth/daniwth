@@ -27,6 +27,7 @@ I'm constantly honing my skills in various technologies. Some of the tools and l
 I'm excited to be part of the GitHub community and eager to connect with like-minded individuals. If you want to discuss tech, translation, or any other exciting topics, feel free to reach out to me. You can find me on Discord at **dani.#0018**.
 
 ## Get in Touch
+![astronauta-de-interstellar_3840x2160_xtrafondos com](https://github.com/daniwth/daniwth/assets/93330784/7989c69c-96dd-4e9e-9bfa-5d506ca96c3d)
 
 I believe in the power of collaboration and learning together. If you'd like to collaborate on a project or simply want to chat, don't hesitate to drop me a message right here on GitHub or through my email at mail@daniwth.me.
 
